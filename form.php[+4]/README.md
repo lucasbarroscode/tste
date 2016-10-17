@@ -1,4 +1,0 @@
-# plataformanegocios
-# projetonegocios
-# projetonegocios
-# projetonegocios
